@@ -1,0 +1,1 @@
+# ryuta06012-Road_to_Mercari_module00
